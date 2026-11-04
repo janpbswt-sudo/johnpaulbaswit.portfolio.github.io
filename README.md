@@ -1,1 +1,0 @@
-# johnpaulbaswit.portfolio.github.io
